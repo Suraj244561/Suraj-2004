@@ -70,7 +70,7 @@
 ## 📫 Let's Connect
 
 - LinkedIn: [linkedin.com/in/suraj-2004](https://linkedin.com/in/suraj-2004)
-- Email: surajyadav@example.com (replace with your real email)
+- Email: surajyadav894.20@gmail.com
 
 ---
 
